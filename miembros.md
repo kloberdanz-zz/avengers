@@ -5,7 +5,7 @@
 * Black panther
 * Black Widow
 * Capitán Marvel
-* Falcon
+* Chevrolet
 * Hank Pym
 * Hawkeye
 * Hulk
