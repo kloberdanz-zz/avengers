@@ -5,7 +5,7 @@
 * Black panther
 * Black Widow
 * Capitán Marvel
-* Falcon que dijimos que no
+* Chevrolet
 * Hank Pym
 * Hawkeye
 * Hulk
